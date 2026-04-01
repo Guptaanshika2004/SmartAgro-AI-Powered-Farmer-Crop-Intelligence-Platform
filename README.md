@@ -1,0 +1,1 @@
+# SmartAgro-AI-Powered-Farmer-Crop-Intelligence-Platform
